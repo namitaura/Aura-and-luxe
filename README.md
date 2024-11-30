@@ -1,6 +1,6 @@
 # Aura-and-luxe
 
-A
+https://vpteduin8928-my.sharepoint.com/:f:/g/personal/pranesh_naik_vpt_edu_in/Eu2i1t_aOrtLghQ0a2_Iw2wBA12wL7tgfulTwZ5VTJXbRg?e=utIUDG
 
 1. Parts of a Computer:
 
